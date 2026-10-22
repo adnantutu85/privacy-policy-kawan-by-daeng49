@@ -1,0 +1,1 @@
+# privacy-policy-kawan-smada-sidrap
